@@ -1,0 +1,2 @@
+# Motion-Education-Pvt.-Ltd.
+Motion is India’s leading coaching Institute which offers Classroom Coaching Programs for preparation of JEE Advanced, JEE Mains and Pre-Medical exams. This year, 2194 students from Motion have qualified to appear for JEE Advanced 2016 after appearing in JEE Main 2016 . Last year, Institute registered 578 selections in JEE Advanced 2015 with 3 students in top 100 and 23 students under 1000 rank. It also has the highest success rate with 33.5%(578 students out of 1723 students)
